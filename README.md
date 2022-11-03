@@ -1,4 +1,4 @@
-### OPA 👋
+### OPA, me chamo Kauã 👋
 
 - 🔭 Hoje eu trabalho com back-end
 - 🌱 Estagiando
